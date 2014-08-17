@@ -1,1 +1,0 @@
-Aplicacióń de ejemplo
