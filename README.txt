@@ -1,1 +1,1 @@
-Aplicacioń de ejemlpo
+Aplicacióń de ejemplo
